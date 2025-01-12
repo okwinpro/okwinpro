@@ -25,4 +25,24 @@ OK Win is a gaming platform where you can play different games, enjoy challenges
 
 ![image](https://github.com/user-attachments/assets/94232fc5-75ac-4ed5-8138-d9f618980015)
 
+# How to Get Started?
+
+Download the App: Click here to download.
+
+Sign Up: Register with basic details.
+
+Claim Your ₹500 Bonus: It will be credited instantly.
+
+Start Playing & Earning: Choose games and win rewards.
+
+# Why Wait?
+
+Join thousands of players and enjoy the thrill of gaming with OK Win. Download the app today and start earning rewards while having fun.
+
+⏬🌐🌐📌[Download App Now](https://okwinslots1.com/#/register?invitationCode=673664886530)⏬🌐🌐📌<br>
+
+⏬🌐🌐📌[Download Ok Win App Now](https://okwinslots1.com/#/register?invitationCode=673664886530)⏬🌐🌐📌
+
+OK Win makes gaming more exciting, secure, and rewarding. Get started today! 🎯
+
 
